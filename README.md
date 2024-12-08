@@ -1,1 +1,0 @@
-# gtc-emples-live.github.io
